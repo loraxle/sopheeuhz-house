@@ -1,2 +1,2 @@
-# sopheeuz-house
+# sopheeuhz-house
 sophia's website
